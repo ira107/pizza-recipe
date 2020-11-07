@@ -1,0 +1,1 @@
+1 large pizza base , 1 chopped capsicum , 1 sliced tomato , 2 olives , 1 bottle of pizza sause , mozzarella cheese 
